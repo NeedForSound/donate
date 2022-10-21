@@ -1,1 +1,1 @@
-# Task 3 (Web) for TSF - GRIP Internsip ~ Nirmit Pahwa
+# Task 3 (Web) for TSF - GRIP Internship ~ Nirmit Pahwa
